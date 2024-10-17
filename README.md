@@ -14,8 +14,7 @@ Are you a potential employer? Looking for more details about my professional jou
 
 - **LinkedIn**: [Keabetswe Mothapo](https://www.linkedin.com/in/keabetswe-mothapo/)
 - **Discord**: [the.midnight.thinker](discord.com/user/820918037279801404)
-- **Email**: [keamothapo@gmail.com](mailto:keamothapo@gmail.com)
-
+  
 ## 🎯 Fun Fact
 
 When I'm not dissecting code or legal statutes, you'll find me doing one of three things:
