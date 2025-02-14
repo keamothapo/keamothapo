@@ -8,7 +8,7 @@ Venturing into the complex maze of cyber governance, ethics, and compliance; I'm
 
 ## 📑 Resume
 
-Are you a potential employer? Looking for more details about my professional journey? Check out my ✨[Curriculum Vitae](https://drive.google.com/file/d/1TYB4utHs3traamdlQAoQUleXtthcHqsP/view?usp=sharing)✨.
+Are you a potential employer? Looking for more details about my professional journey? Check out my ✨[Curriculum Vitae](https://drive.google.com/file/d/1QVB6CR6SiSzvMVLndFFp8--hyW_C8L_y/view?usp=sharing)✨.
 
 ## 🌐 Let's Connect
 
