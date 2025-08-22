@@ -8,12 +8,12 @@ Venturing into the complex maze of cyber governance, ethics, and compliance; I'm
 
 ## 📑 Resume
 
-Are you a potential employer? Looking for more details about my professional journey? Check out my ✨[Curriculum Vitae](https://drive.google.com/file/d/1QVB6CR6SiSzvMVLndFFp8--hyW_C8L_y/view?usp=sharing)✨.
+Are you a potential employer? Looking for more details about my professional journey? Check out my ✨[website](https://..)✨.
 
 ## 🌐 Let's Connect
 
 - **LinkedIn**: [Keabetswe Mothapo](https://www.linkedin.com/in/keabetswe-mothapo/)
-- **Discord**: [the.midnight.thinker](discord.com/user/820918037279801404)
+- **Discord**: [the.midnight.thinker](https://discordaapp.com/users/820918037279801404)
   
 ## 🎯 Fun Fact
 
